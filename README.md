@@ -1,2 +1,0 @@
-# naitikdhanani.github.io
-website
